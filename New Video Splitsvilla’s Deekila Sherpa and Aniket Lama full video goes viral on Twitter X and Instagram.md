@@ -1,6 +1,10 @@
 eekila Sherpa is a rising star in the modelling, reality TV, and social media sectors.
 
-Because of her captivating personality and unwavering determination, Deekila Sherpa has quickly become well-known among fans, largely because to her participation on MTV Roadies Season 20 and MTV Splitsvilla X5. Even though she is only 22 years old, she has already shown to be a serious competitor and an inspiration to young women.
+📺📱👉◄◄🔴  https://tinyurl.com/5n6bjbnr
+
+📺📱👉◄◄🔴  https://tinyurl.com/5n6bjbnr
+
+📺📱👉◄◄🔴  https://tinyurl.com/5n6bjbnr
 
 Splitsvilla couple Deekila Sherpa and Aniket Lama full video goes viral on Twitter/X and Instagram
 
