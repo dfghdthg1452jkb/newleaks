@@ -1,6 +1,13 @@
 Sau nhiều năm gia nhập làng giải trí, Địch Lệ Nhiệt Ba đã trở thành tên tuổi lớn được nhiều đoàn làm phim và nhãn hàng săn đón.
 
-Mới đây, mỹ nhân Tân Cương gây sốc “visual” khi xuất hiện trong quảng cáo mới của một nhãn hiệu trang sức xa xỉ. Đây là lần hiếm hoi Địch Lệ Nhiệt Ba tái xuất ở mảng thời trang sau thời gian miệt mài quay phim mới.
+📺📱👉◄◄🔴  https://tinyurl.com/5n6bjbnr
+
+📺📱👉◄◄🔴  https://tinyurl.com/5n6bjbnr
+
+📺📱👉◄◄🔴  https://tinyurl.com/5n6bjbnr
+
+📺📱👉◄◄🔴  https://tinyurl.com/5n6bjbnr
+
 
 Hình ảnh quyến rũ gây sốt của Địch Lệ Nhiệt Ba Ảnh 1
 Hình ảnh quyến rũ gây sốt của Địch Lệ Nhiệt Ba Ảnh 2
